@@ -1,3 +1,3 @@
-Solving AGI.
+AGI = next-Generation AI.
 
-Solving the next generation AI.
+Solving AGI. Solving the next generation AI.
