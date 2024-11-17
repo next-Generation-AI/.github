@@ -1,1 +1,2 @@
-AGI is building by code, not by paper.
+## USR
+Universal Super Robot
