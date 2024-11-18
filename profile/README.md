@@ -1,2 +1,2 @@
-## USR
-Universal Super Robot
+## SUR
+Super Universal Robot
