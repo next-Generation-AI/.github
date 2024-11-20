@@ -1,2 +1,2 @@
-## SUR 勇敢去做
-Super Universal Robot
+## 勇敢去做
+Do it until believe it
