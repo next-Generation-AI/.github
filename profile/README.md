@@ -1,3 +1,1 @@
-## Just for Fun
-
-Just A Kid
+## Just A Kid
