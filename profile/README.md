@@ -1,1 +1,1 @@
-love tech with no reason
+Inside technology, there is happiness.
