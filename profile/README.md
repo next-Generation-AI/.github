@@ -1,1 +1,1 @@
-Inside technology, there is happiness.
+Inside technology, there is simple and happiness.
