@@ -1,1 +1,1 @@
-Inside technology, there is simple-to-happiness.
+Efficiently Build AGI
