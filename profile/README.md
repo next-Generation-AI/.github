@@ -1,1 +1,1 @@
-Research direction: Efficiently Build 99% Accuracy Models, Efficiently Build AGI
+[Research direction](https://github.com/guotong1988/guotong1988.github.io/blob/main/README2.md)
