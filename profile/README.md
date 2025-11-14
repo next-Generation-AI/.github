@@ -1,1 +1,1 @@
-https://www.researchgate.net/profile/Tong-Guo-10
+https://www.researchgate.net/lab/Guo-Lab-Tong-Guo
